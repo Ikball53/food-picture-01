@@ -1,3 +1,3 @@
-# Creamy tonkotsu ramen
+# Steaming tonkotsu ramen
 
-A big bowl of creamy tonkotsu ramen — chashu pork, a soft egg with a yolk just starting to melt, green onions and nori, steam rising while chopsticks lift the noodles.
+Steaming tonkotsu ramen — charred chashu, a soft egg with a glossy jammy yolk, green onions and sesame, chopsticks lifting the noodles, steam rising.
